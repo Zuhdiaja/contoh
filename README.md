@@ -1,1 +1,1 @@
-contoh cara lain
+contoh cara lainnya
